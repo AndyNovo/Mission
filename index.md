@@ -1,4 +1,4 @@
-# My Mission: To massively improve millions of lives
+# Massively improve millions of lives
 
 This requires integrity, influence, technology, vision, strength, and great energy.
 
